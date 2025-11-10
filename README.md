@@ -1,2 +1,2 @@
 # ULTRALATRO
-cool funny mod i guess
+how the fuck does github work this is my first time using it
